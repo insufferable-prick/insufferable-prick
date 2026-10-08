@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
+<img width="600" height="80" alt="1000037946" src="https://github.com/user-attachments/assets/2d4bf582-4a22-498b-8504-c8855a803a7c" />
 
-<!--
-**insufferable-prick/insufferable-prick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$\color{red}{\text{literally dave irl . 𝖿𝗂𝖼𝗍𝗸𝗶𝗻}}$
+###### kin doubles dni
+![1000037953](https://github.com/user-attachments/assets/15244472-e205-4ef1-a74a-00e0c97c0354)
 
-Here are some ideas to get you started:
+$\color{red}{\text{straw/rentry coming soon ! }}$
+$\color{red}{\text{local ironic dickhead}}$
+<img width="400" height="250" alt="1000037956" src="https://github.com/user-attachments/assets/585987a1-6a9a-4c7e-98d9-8aa8c85aeb51" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\color{red}{\text{⌗1 homestuck larper because im still}}$
+$\color{red}{\text{reading sigh..}}$
