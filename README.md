@@ -6,7 +6,7 @@ ${\textsf{\color{FF4200}literally dave irl . 𝖿𝗂𝖼𝗍𝗸𝗶𝗻}}$
 ![1000037953](https://github.com/user-attachments/assets/15244472-e205-4ef1-a74a-00e0c97c0354)
 
 [rentry](https://rentry.co/bladedkind)
-${\textsf{\color{FF4200}straw coming soon}}$
+. [straw](https://bladedkind.straw.page)
 ${\textsf{\color{FF4200}local ironic dickhead}}$
 <img width="400" height="250" alt="1000037956" src="https://github.com/user-attachments/assets/585987a1-6a9a-4c7e-98d9-8aa8c85aeb51" />
 
